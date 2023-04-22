@@ -2,6 +2,20 @@
 
 ✨Riming Xu
 
+2015-2019 B.S. Hainan University
+
+    Graduate from Beijing Institute of Technology (BIT)
+
+    National Scholarship
+
+    Outstanding Graduate of Beijing
+
+    Outstanding Graduate of BIT
+
+    Outstanding Postgraduate Pioneer of BIT
+
+2019-2021 M.S. Beijing Institute of Technology (BIT)
+
 Graduate from Beijing Institute of Technology (BIT)
 
 National Scholarship
