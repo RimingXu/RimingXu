@@ -3,14 +3,20 @@
 ✨Riming Xu
 
 Graduate from Beijing Institute of Technology (BIT)
+
 National Scholarship
+
 Outstanding Graduate of Beijing
+
 Outstanding Graduate of BIT
+
 Outstanding Postgraduate Pioneer of BIT
 
 🔭Reviewer:
 Proceedings of The Institution of Mechanical Engineers Part D-Journal of Automobile Engineering
+
 International Journal of Automotive Technology
+
 Automotive Innovation
 
 🌱Awards:
