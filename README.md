@@ -13,7 +13,7 @@
 
     Outstanding Postgraduate Pioneer of HNU
 
-2019-2021 M.S. in Beijing Institute of Technology (BIT)
+2019-2022 M.S. in Beijing Institute of Technology (BIT)
 
     National Scholarship
 
@@ -25,9 +25,9 @@
     
     Special Scholarship in BIT
 
-2021-2022 R.A. in Westlake University
+2022-2023 R.A. in Westlake University
 
-2022-now Ph.D. student in Hong Kong
+2023-now Ph.D. student in Hong Kong
 
 
 
