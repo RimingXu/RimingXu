@@ -3,7 +3,7 @@
 
 ✨Riming Xu
 
-2015-2019 B.S. in Hainan University ( top 1 % )
+2015-2019 B.S. in Hainan University ( Ranking 1 / 123 )
 
     National Scholarship
 
@@ -13,7 +13,7 @@
 
     Outstanding Postgraduate Pioneer of HNU
 
-2019-2022 M.S. in Beijing Institute of Technology ( top 1 % )
+2019-2022 M.S. in Beijing Institute of Technology ( Ranking 1 / 461 )
 
     National Scholarship
 
@@ -27,6 +27,8 @@
 
 2022-2023 R.A. in Westlake University
 
+
+
 2023-now Ph.D. student in Hong Kong
 
 
@@ -39,7 +41,7 @@
 
     Automotive Innovation
 
-🌱Professional affiliations:
+🌱Professional Affiliations:
 
     Assistant Dean/Hainan Low Carbon Economic Policy and Industrial Technology Research Institute
 
