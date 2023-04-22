@@ -3,7 +3,7 @@
 
 ✨Riming Xu
 
-2015-2019 B.S. in Hainan University
+2015-2019 B.S. in Hainan University ( top 1 % )
 
     National Scholarship
 
@@ -13,7 +13,7 @@
 
     Outstanding Postgraduate Pioneer of HNU
 
-2019-2022 M.S. in Beijing Institute of Technology (BIT)
+2019-2022 M.S. in Beijing Institute of Technology ( top 1 % )
 
     National Scholarship
 
@@ -61,5 +61,7 @@
 
     [10] In June 2021, the Beijing Institute of Technology (BIT) Challenge Cup won the first prize (1%) in the Campus Saite Award/Beijing Institute of Technology (BIT)
     
-    [16] 
+    [16] In October 2018, National Undergraduate Electronics Design Contest Second prize/Hainan Provincial Department of Education
+    
+    [17] In October 2017, mathematical contest in modeling/Hainan Provincial Department of Education
 
