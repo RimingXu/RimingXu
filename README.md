@@ -39,7 +39,11 @@
 
     Automotive Innovation
 
-🌱Other Awards:
+🌱Professional affiliations:
+
+    Assistant Dean/Hainan Low Carbon Economic Policy and Industrial Technology Research Institute
+
+🌱Competition Awards:
 
     [1] In October 2021, the 7th China International "Internet plus" Innovation and Entrepreneurship Competition National Finals National Silver Award (0.1 ‰)/Ministry of Education, Central United Front Work Department, Office of the Central Cybersecurity and Information Technology Commission, National Development and Reform Commission, Ministry of Industry and Information Technology, Ministry of Human Resources and Social Security, Ministry of Agriculture and Rural Affairs, Chinese Academy of Sciences, China Engineering Academy, China National Intellectual Property Administration, National Bureau of Rural Revitalization, Central Committee of the Communist Youth League, Jiangxi Provincial People's Government
 
