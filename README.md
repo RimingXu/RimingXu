@@ -29,7 +29,7 @@
 
 
 
-2023-now Ph.D. student in Hong Kong
+2023-now R.A. in HKUST
 
 
 
