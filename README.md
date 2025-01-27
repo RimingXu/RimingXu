@@ -29,7 +29,9 @@
 
 
 
-2023-now R.A. in HKUST(GZ)
+2023-2024 R.A. in HKUST (GZ) and CUHK (SZ)
+
+2024-Now  PhD student in KAUST (KSA)
 
 
 
