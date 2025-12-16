@@ -29,7 +29,7 @@
 
 
 
-2023-2024 R.A. in HKUST (GZ) and CUHK (SZ) and also HKU
+2023-2024 R.A. in HKUST (GZ) 
 
 2024-Now  R.A. in KAUST (KSA)
 
